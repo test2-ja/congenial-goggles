@@ -1,0 +1,1 @@
+ciekawe jak wyjdzie
